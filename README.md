@@ -26,7 +26,7 @@
 
 1. **Arm Circles (2 minutes)**
    - **Groupes musculaires :** épaules, bras
-   - [Vidéo](https://www.youtube.com/watch?v=TeJ6kRS_C3I)
+   - [Vidéo](https://www.youtube.com/watch?v=3STTSi_jdHk&ab_channel=NuffieldHealth)
 
 2. **Diamond Push-Ups (3 séries de 10 répétitions)**
    - **Groupes musculaires :** triceps, pectoraux
@@ -48,7 +48,7 @@
 
 1. **High Knees (2 minutes)**
    - **Groupes musculaires :** quadriceps, fessiers, mollets, abdominaux
-   - [Vidéo](https://www.youtube.com/watch?v=8opcQdC-V-U)
+   - [Vidéo](https://www.youtube.com/watch?v=ZNDHivUg7vA&ab_channel=wearecult)
 
 2. **Lunges (3 séries de 15 répétitions par jambe)**
    - **Groupes musculaires :** quadriceps, fessiers, ischio-jambiers
@@ -69,7 +69,7 @@
 ### Jour 4 : Repos actif
 
 - **Stretching ou marche rapide (20 minutes)**
-   - [Vidéo](https://www.youtube.com/watch?v=9Pc2eBPs6ZQ)
+   - [Vidéo](https://www.youtube.com/watch?v=xvrWZk6ZekQ&ab_channel=LucileWoodward)
 
 ### Jour 5 : Core (Abdominaux)
 
@@ -91,7 +91,7 @@
 
 5. **Flutter Kicks (3 séries de 30 secondes)**
    - **Groupes musculaires :** abdominaux inférieurs, quadriceps
-   - [Vidéo](https://www.youtube.com/watch?v=K1uZtJ2R8RM)
+   - [Vidéo](https://www.youtube.com/watch?v=ZB1SwBRVLCc&ab_channel=Wodstar)
 
 ### Jour 6 : Full Body
 
@@ -118,4 +118,4 @@
 ### Jour 7 : Repos ou étirements
 
 - **Stretching ou yoga doux (20 minutes)**
-   - [Vidéo](https://www.youtube.com/watch?v=v7AYKMP6rOE)
+   - [Vidéo](https://www.youtube.com/watch?v=xvrWZk6ZekQ&ab_channel=LucileWoodward)
