@@ -122,4 +122,4 @@
 - **Stretching ou yoga doux (20 minutes)**
    - [Vidéo](https://www.youtube.com/watch?v=xvrWZk6ZekQ&ab_channel=LucileWoodward)
 
-> Concernant les temps de repos entre chaque répétition, tu peux ajuster en fonction de temps. Le but étant qu'en même de limiter les temps de repos, pour maximiser les gains en endurance musculaire et en dépense calorifique.
+> Concernant les temps de repos entre chaque répétition, tu peux ajuster en fonction de ton niveau. Le but étant qu'en même de limiter les temps de repos, pour maximiser les gains en endurance musculaire et en dépense calorifique.
