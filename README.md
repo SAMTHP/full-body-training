@@ -36,7 +36,7 @@
 3. **Pike Push-Ups (3 séries de 12 répétitions, 45 secondes de repos entre chaque répétition)**
    - **Groupes musculaires :** épaules, triceps, pectoraux
    - [Vidéo](https://www.youtube.com/watch?v=dX_nSOOJIsE)
-   > N'hésite pas à poser les genoux si tu n'arrives à poser à les faire autrement
+   > Tu peux utiliser deux chaises pour cet exercice
 
 4. **Tricep Dips (3 séries de 15 répétitions, 45 secondes de repos entre chaque répétition)**
    - **Groupes musculaires :** triceps, épaules, pectoraux
